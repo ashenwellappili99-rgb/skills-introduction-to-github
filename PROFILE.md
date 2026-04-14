@@ -1,1 +1,1 @@
-welcom to my git hub
+Welcome to my GitHub profile! 
